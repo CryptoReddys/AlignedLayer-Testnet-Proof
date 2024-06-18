@@ -2,7 +2,7 @@
 
 
 
-![Uploading alig.png…]()
+![image](https://github.com/CryptoReddys/AlignedLayer-Testnet-Proof/assets/59482451/d82e0171-e04c-48f2-a238-458f9bbb1396)
 
 
 
