@@ -1,1 +1,0 @@
-# AlignedLayer-Testnet-Proof
